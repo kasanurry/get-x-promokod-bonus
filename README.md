@@ -6,6 +6,8 @@
 
 ## Чтобы активировать бонусы после регистрации с промокодом в Гет Х, нужно внести депозит от 500 рублей!
 
+## Get X сайт 2025 - https://linkcasino.ru/get-x
+
 ![image](https://github.com/user-attachments/assets/a6317ba1-2693-4700-890d-ba2aca9deb3f)
 
 
